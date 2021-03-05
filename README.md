@@ -1,8 +1,18 @@
 # Quote
 Self Motivation_ Towards Different Level Of Thinking_
+=====================================================================================
 
-	# # “A Goal Without a plan is only a wish”
-#-----------------------------------------------------
+#               EVERYTHING IS POSSIBLE JUST GO DEEPER SEARCH        ||         AVOID LOGIC LESS TALK , CREATE HISTORY , LEVEL OF THINK 
+#                                                     & 
+#                                              WHAT EVER YOUR MIND CAN THINKABLE IT IS POSSIBLE TO IMPLEMENT IN REAL TIME
+#              ---------------------------------------------------------------------------
+	       
+	       
+	       
+	       
+	       
+# “A Goal Without a plan is only a wish”
+----------------
 	“Excellence is a continuous process and not an accident.”
 
 	“Man needs difficulties in life because they are necessary to enjoy the success.”
@@ -312,6 +322,17 @@ Self Motivation_ Towards Different Level Of Thinking_
 	"Forgiveness is a strange thing. It can sometimes be easier to forgive our enemies than our friends.
                   It can be hardest of all to forgive people we love. Like all of life’s important coping skills, 
                    the ability to forgive and the capacity to let go of resentments most likely take root very early in our lives."
-===================================================================================================
+Albert Einstein    Thinking Level
+------------------------------
+- Creativity is intelligence having fun
+- It is not that I'm so Smart. But I Stay with the Questions Much Longer
+- I have no Special Talent. I am only Passionately Curious.
+- If you cann't explain it to a six year old. You don't understand it Yourself
+- Look deep into nature, and then you will understand everything Better.
+- A Clever Person Solves a Problem. A Wise Person Avoids It.
+- You Never Fail Until you Stop Trying
 
-	Albert Ein
+
+
+============================
+
